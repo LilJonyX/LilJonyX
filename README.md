@@ -1,12 +1,11 @@
 ### 👋 Hey, hey!
 
-My name is **Jony**. I'm an 💻 IT student, 🎨 graphic designer (still a beginner), 🤖 AI enthusiast and sort of a 🗾 weeb.
+My name is **Jony**. I'm an 💻 IT student, 🎨 graphic designer (I still suck on it), 🤖 AI enthusiast and sort of a 🗾 weeb.
 
-- I'm 19 years old
+- I'm 20 years old (⑨/⑨)
 - I'm from the 🇨🇿 Czech Republic
-- I like Touhou Project (I suck on it)
-- I dislike 🎮 Riot Games (LoL, Valorant, ...) and Fortnite
-- Anime 🦊👧 foxgirls and 😺👧 catgirls are the best (Senko-san best waifu). ♂ Femboys too. ( ͡° ͜ʖ ͡°)
+- I like sandbox games (Minecraft, Terraria etc.) and Touhou Project (I suck on it)
+- ♂ Femboy enjoyer ( ͡° ͜ʖ ͡°)
 
 
 
