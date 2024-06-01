@@ -3,7 +3,7 @@
 My name is **Jony**. I'm an 💻 IT student, 🎨 graphic designer (I still suck on it), 🤖 AI enthusiast and sort of a 🗾 weeb.
 
 - I'm 20 years old (⑨/⑨)
-- I'm from the 🇨🇿 Czech Republic
+- I'm from 🇨🇿 the Czech Republic
 - I like sandbox games (Minecraft, Terraria etc.) and Touhou Project (I suck on it)
 
 
