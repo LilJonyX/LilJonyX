@@ -1,10 +1,10 @@
 ### 👋 Hey, hey!
 
-My name is **Jony**. I'm an 💻 IT student (formerly), 🎨 graphic designer (I still kinda suck on it), 🤖 AI enthusiast and sort of a 🗾 weeb.
+My name is **Jony**. I'm an 💻 IT student (formerly), 🎨 graphic designer (I still kinda suck at it), 🤖 AI enthusiast and sort of a 🗾 weeb.
 
 - I'm 20 years old (⑨/⑨)
 - I'm from 🇨🇿 the Czech Republic
-- I like sandbox games (Minecraft, Terraria etc.) and Touhou Project (I suck on it)
+- I like sandbox games (Minecraft, Terraria etc.) and Touhou Project (I suck at it)
 
 
 
